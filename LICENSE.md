@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with top Polymarket Module | volatility-detection + high-frequency-trading, the #1 module. Includes volatility-detection and high-frequency-trading
 
 
 
